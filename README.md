@@ -15,5 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 Just trying to explore this platform and become more familiar with technology and coding ⚡
+
 Fun Fact: If I ever fully figure out this platform, I will finally call myself someone who is not afraid of coding and tech stuff 
+
 Pronouns: She/Her 😄
